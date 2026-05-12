@@ -1,4 +1,4 @@
-# 
+# custom Audacity for PC | Audacity for Windows Panel | audio-trimming + fade-in-out offers the most advanced Audacity for PC | Audacity for Windows panel, with audio-trimming and
 
 
 
